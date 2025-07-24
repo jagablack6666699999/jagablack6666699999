@@ -10,23 +10,22 @@ bad_prompt, long neck, out of frame, extra fingers, mutated hands, monochrome, (
 bad_prompt, long neck, out of frame, extra fingers, mutated hands, monochrome, ((poorly drawn hands)), ((poorly drawn face)), (((mutation))), (((deformed))), ((ugly)), blurry, ((bad anatomy)), (((bad proportions))), ((extra limbs)), cloned face, glitchy, bokeh, (((long neck))), ((flat chested)), ((((visible hand)))), ((((ugly)))), (((duplicate))), ((morbid)), ((mutilated)), [out of frame], extra fingers, mutated hands, ((poorly drawn hands)), ((poorly drawn face)), (((mutation))), (((deformed))), ((ugly)), blurry, ((bad anatomy)), (((bad proportions))), ((extra limbs)), cloned face, (((disfigured))), out of frame, ugly, extra limbs, (bad anatomy), gross proportions, (malformed limbs), ((missing arms)), ((missing legs)), (((extra arms))), (((extra legs))), mutated hands, (fused fingers), (too many fingers), (((long neck))), red eyes, (multiple subjects), extra heads, 3d, (censor, low quality, worst quality, normal quality, error, bad, blurry, lowres:1.2), (signature, username, watermark, jpeg artifacts:1.2), (penis), male genitalia, uneven eyes, fat rolls, fused nipples, muscles, mismatched eyes, malformed thighs, malformed arms, deformed legs, detached hands, retarded eyes, phallus, text, opaque eyes, deformed hands, malformed fingers, malformed vagina, mutilated fingers, fused clothes, poorly drawn eyes, male pov, male crotch, mutated hair, penetration, fellatio, sexual intercourse, malformed torso, malformed thighs, no eyes, malformed eyes, misshapen eyes, EasyNegativeV2
 (((masterpiece, best quality))), (empty background, black background, plain background, soft lighting), (glistening skin, glossy hair), (1girl, solo), looking at viewer, looking down from above, standing upright, arms hidden behind back, (beautiful and detailed costume, gorgeous eyes, extremely adorable and devilish girl, mesugaki), (smug, (half-closed eyes), (ahegao, (oral invitation), mouth open wide, tongue sticking out, (cum on tongue), cum on breasts), (moaning, yelling loudly, orgasm, aroused, ecstasy, in heat, teasing, submissive, horny, naughty face), ((fully nude), exposed vagina, pubic hair, curvy body, small breasts, exposed nipples, wide hips, thigh gap, vagina dripping fluid), blue eyes, black hair, pigtails, short hair, blunt bangs, marnie \(pokemon\)
 
-Model
-Hassaku v1.3
-Size
-512 x 768 or 512 x 1024
-Sampling Steps
-23
-Sampling Method
-Euler a
-CFG Scale
-6.1
+hassaku v1.3
+512 x 768 / 512 x 1024
+23 steps
+euler a
+5 cfg
 
+------------------------------------------------------------------------------------------------
+
+https://pixai.art/model/1632238604064333104
+https://pixai.art/model/1616269001258343823 https://pixai.art/model/1747858653341691196
+https://pixai.art/model/1610118453470568699
+
+------------------------------------------------------------------------------------------------
+
+May / Haruka - Pokemon [ORAS Design]
 https://pixai.art/model/1622888639416915696
-https://pixai.art/model/1623548600262544059-Lillie-ponytail-Pokmon
-https://pixai.art/model/1603762775817892300-Marnie-Pokemon
-https://pixai.art/model/1632798394540513690-serena-pokemon
-
-https://pixai.art/model/1632238604064333104 https://pixai.art/model/1747858653341691196 https://pixai.art/model/1616269001258343823 https://pixai.art/model/1610118453470568699
 
 meme chan (Me!Me!Me!)
 
@@ -493,5 +492,3 @@ Yamanaka Ino
 Alice Garnet Nakata (The King of Fighters)
 
 Kokkoro / コッコロ
-
-May / Haruka - Pokemon [ORAS Design]
