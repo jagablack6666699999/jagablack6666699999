@@ -33,10 +33,15 @@ https://pixai.art/model/1610118453470568699
 ------------------------------------------------------------------------------------------------
 
 reddxxx.com##[role="listitem"] > [class*="hover:"]
+
 reddxxx.com##[role="gridcell"] > .bg-th-post
+
 reddxxx.com##.blur-3xl:style(filter: unset !important;)
+
 reddxxx.com##.backdrop-blur-sm.inset-0.hover\:cursor-pointerh-full.text-white.group.w-full.justify-center.items-center.flex-col.flex.absolute
+
 reddxxx.com##.transition-opacity > div:style(filter: unset !important;)
+
 reddxxx.com##.bg-black\/50.fixed
 
 ------------------------------------------------------------------------------------------------
