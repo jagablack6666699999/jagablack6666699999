@@ -44,6 +44,22 @@ https://pixai.art/model/1610118453470568699
 
 ------------------------------------------------------------------------------------------------
 
+https://nhentai.net/g/549296/26/
+https://nhentai.net/g/487467/9/
+https://nhentai.net/g/259332/12/
+https://nhentai.net/g/447297/13/
+https://nhentai.net/g/454578/4/
+https://nhentai.net/g/397205/8/
+https://nhentai.net/g/283007/14/
+https://nhentai.net/g/146595/31/
+https://nhentai.net/g/504598/59/
+https://nhentai.net/g/385126/35/
+https://nhentai.net/g/566838/12/
+https://nhentai.net/g/509443/7/
+https://nhentai.net/g/505711/6/
+
+------------------------------------------------------------------------------------------------
+
 reddxxx.com##[role="listitem"] > [class*="hover:"]
 
 reddxxx.com##[role="gridcell"] > .bg-th-post
