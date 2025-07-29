@@ -16,6 +16,8 @@
 
 bad_prompt, long neck, out of frame, extra fingers, mutated hands, monochrome, ((poorly drawn hands)), ((poorly drawn face)), (((mutation))), (((deformed))), ((ugly)), blurry, ((bad anatomy)), (((bad proportions))), ((extra limbs)), cloned face, glitchy, bokeh, (((long neck))), ((flat chested)), ((((visible hand)))), ((((ugly)))), (((duplicate))), ((morbid)), ((mutilated)), [out of frame], extra fingers, mutated hands, ((poorly drawn hands)), ((poorly drawn face)), (((mutation))), (((deformed))), ((ugly)), blurry, ((bad anatomy)), (((bad proportions))), ((extra limbs)), cloned face, (((disfigured))), out of frame, ugly, extra limbs, (bad anatomy), gross proportions, (malformed limbs), ((missing arms)), ((missing legs)), (((extra arms))), (((extra legs))), mutated hands, (fused fingers), (too many fingers), (((long neck))), red eyes, (multiple subjects), extra heads, 3d, (censor, low quality, worst quality, normal quality, error, bad, blurry, lowres:1.2), (signature, username, watermark, jpeg artifacts:1.2), (penis), male genitalia, uneven eyes, fat rolls, fused nipples, muscles, mismatched eyes, malformed thighs, malformed arms, deformed legs, detached hands, retarded eyes, phallus, text, opaque eyes, deformed hands, malformed fingers, malformed vagina, mutilated fingers, fused clothes, poorly drawn eyes, male pov, male crotch, mutated hair, penetration, fellatio, sexual intercourse, malformed torso, malformed thighs, no eyes, malformed eyes, misshapen eyes, EasyNegativeV2
 
+sonia (pokemon) sucking a large cock while naked and winking
+
 hassaku v1.3
 512 x 768 / 512 x 1024
 23 steps
