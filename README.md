@@ -28,11 +28,9 @@ bad_prompt, long neck, out of frame, extra fingers, mutated hands, monochrome, (
 
 768 x 1280
 
-Profile view of a dignified girl with dark brown hair in a ponytail, green eyes, a prominent chin, a large exposed forehead, a slim fit body, and small breasts wearing degrading cow print lingerie and squatting with her legs spread apart showing her vagina and her arms raised behind her head showing her armpits while deepthroating a large cock with her thick and luscious lips wrapped tightly around the tip of the cock and her eyelids are half closed expressing unbelievable pleasure
+profile view of a graceful and dignified girl with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with tiny breasts wearing degrading cow print lingerie with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while deepthroating a cock with her luscious lips wrapped tightly around the tip of the cock and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
 
-Profile view of a girl with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with flat breasts wearing degrading cow print bodysuit with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while deepthroating a cock with her luscious lips wrapped tightly around the tip of the cock and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
-
-Profile view of a girl with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with flat breasts wearing degrading cow print lingerie with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while being fucked and penetrated below by a cock and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
+a graceful and dignified girl with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with small breasts wearing degrading cow print bodysuit with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while being fucked and penetrated by a cock from below and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
 
 hassaku v1.3
 512 x 768 / 512 x 1024
