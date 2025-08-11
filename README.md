@@ -30,7 +30,7 @@ bad_prompt, long neck, out of frame, extra fingers, mutated hands, monochrome, (
 
 profile view of a graceful and dignified girl with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with tiny breasts wearing degrading cow print lingerie with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while deepthroating a cock with her luscious lips wrapped tightly around the tip of the cock and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
 
-a graceful and dignified girl with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with small breasts wearing degrading cow print bodysuit with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while being fucked and penetrated by a cock from below and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
+a graceful and dignified woman with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with small breasts wearing degrading cow print bodysuit with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while being fucked and penetrated by a cock from below and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
 
 hassaku v1.3
 512 x 768 / 512 x 1024
@@ -152,6 +152,8 @@ https://pmvhaven.com/video/Blowjobs-make-me-soo-hard_67f16e352fc426bdd879b7e7
 https://pmvhaven.com/video/Perfect-Brats-nn-_684f8ee12a106f984a484314
 https://pmvhaven.com/video/Instagram-Brats-nn-_684a60e98da2a65bbb235246
 https://pmvhaven.com/video/Ahegao-Hailey-Girls-We-Love-Trailer_6755e6a3be3efade31f921aa
+https://www.erome.com/a/dxFCYCJx
+https://namethatporn.com/post/1687733-anyone-know-her-name.html
 
 ------------------------------------------------------------------------------------------------
 
