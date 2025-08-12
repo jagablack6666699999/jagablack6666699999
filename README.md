@@ -39,10 +39,9 @@ profile view of a graceful and dignified girl with brown hair in a ponytail, gre
 a graceful and dignified woman with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with small breasts wearing degrading cow print bodysuit with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while being fucked and penetrated by a cock from below and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
 
 hassaku v1.3
-512 x 768 / 512 x 1024
 23 steps
-euler a
-5 cfg
+eulera/euler
+4.5/5/6 cfg
 
 https://pixai.art/model/1632238604064333104
 
