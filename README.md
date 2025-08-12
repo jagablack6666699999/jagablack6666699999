@@ -20,28 +20,31 @@ bad_prompt, long neck, out of frame, extra fingers, mutated hands, monochrome, (
 
 512 x 768
 512 x 1024
+cfg 6 eulera
+hassaku v1.3
 
-(((masterpiece, best quality))), (plain background, empty black background, soft lighting), looking at viewer, lying down on bed, arms raised above head, armpits, (detached sleeves, beautiful and detailed costume, extremely detailed and gorgeous eyes, glistening skin), (1girl, solo), (smug. half-closed eyes, rolling eyes), (ahegao, mouth open wide, tongue sticking out, cum on tongue, cum on breasts), (moaning, yelling loudly, orgasm, ecstasy, horny, submissive, aroused, in heat, teasing, naughty eyes), (fully nude, penis penetrating vagina, legs spread apart, exposed vagina, vagina dripping fluid, pubic hair, small breasts, exposed nipples, wide hips, thigh gap, broad shoulders, sex, intercourse), short hair, Haruka_ORAS
+(((masterpiece, best quality))), (plain background, empty black background, soft lighting), looking at viewer, lying down on bed, arms raised above head, armpits, (detached sleeves, beautiful and detailed costume, extremely detailed and gorgeous eyes, glistening skin), (1girl, solo), (smug, half-closed eyes, rolling eyes), (ahegao, mouth open wide, tongue sticking out, cum on tongue, cum on breasts), (moaning, yelling loudly, orgasm, ecstasy, horny, submissive, aroused, in heat, teasing, naughty eyes), (fully nude, penis penetrating vagina, legs spread apart, exposed vagina, vagina dripping fluid, pubic hair, small breasts, exposed nipples, wide hips, thigh gap, broad shoulders, sex, intercourse), short hair, Haruka_ORAS
 
-(((masterpiece, best quality))), (plain background, empty black background, soft lighting), looking at viewer, looking down from above, standing upright, arms hidden behind back, (detached sleeves, beautiful and detailed costume, extremely detailed and gorgeous eyes, glistening skin), (1girl, solo), (smug. half-closed eyes, rolling eyes), (ahegao, mouth open wide, tongue sticking out, cum on tongue, cum on breasts), (moaning, yelling loudly, orgasm, ecstasy, horny, submissive, aroused, in heat, teasing, naughty eyes), (fully nude, exposed vagina, vagina dripping fluid, pubic hair, flat chest, exposed nipples, wide hips, thigh gap, broad shoulders), kokkoro, silver hair, short hair
+(((masterpiece, best quality))), (plain background, empty black background, soft lighting), looking at viewer, looking down from above, standing upright, arms hidden behind back, (detached sleeves, beautiful and detailed costume, extremely detailed and gorgeous eyes, glistening skin), (1girl, solo), (smug, half-closed eyes, rolling eyes), (ahegao, mouth open wide, tongue sticking out, cum on tongue, cum on breasts), (moaning, yelling loudly, orgasm, ecstasy, horny, submissive, aroused, in heat, teasing, naughty eyes), (fully nude, exposed vagina, vagina dripping fluid, pubic hair, flat chest, exposed nipples, wide hips, thigh gap, broad shoulders), kokkoro, silver hair, short hair
 
 768 x 1024
 960 x 1280
+cfg 6 eulera
+hassaku v1.3
 
-(((masterpiece, best quality))), (plain background, empty black background, soft lighting), looking at viewer, looking down from above, standing upright, arms hidden behind back, (detached sleeves, beautiful and detailed costume, extremely detailed and gorgeous eyes, glistening skin), (multiple girls, group picture, lineup, harem, 3girls), (smug. half-closed eyes, rolling eyes), (ahegao, mouth open wide, tongue sticking out, cum on tongue, cum on breasts), (moaning, yelling loudly, orgasm, ecstasy, horny, submissive, aroused, in heat, teasing, naughty eyes), (fully nude, exposed vagina, vagina dripping fluid, pubic hair, medium breasts, exposed nipples, wide hips, thigh gap, broad shoulders),lillie (pokemon)
+(((masterpiece, best quality))), (plain background, empty black background, soft lighting), looking at viewer, looking down from above, standing upright, arms hidden behind back, (detached sleeves, beautiful and detailed costume, extremely detailed and gorgeous eyes, glistening skin), (multiple girls, group picture, lineup, harem, 3girls), (smug, half-closed eyes, rolling eyes), (ahegao, mouth open wide, tongue sticking out, cum on tongue, cum on breasts), (moaning, yelling loudly, orgasm, ecstasy, horny, submissive, aroused, in heat, teasing, naughty eyes), (fully nude, exposed vagina, vagina dripping fluid, pubic hair, medium breasts, exposed nipples, wide hips, thigh gap, broad shoulders),lillie (pokemon)
 
 bad_prompt, long neck, out of frame, extra fingers, mutated hands, monochrome, ((poorly drawn hands)), ((poorly drawn face)), (((mutation))), (((deformed))), ((ugly)), blurry, ((bad anatomy)), (((bad proportions))), ((extra limbs)), cloned face, glitchy, bokeh, (((long neck))), ((((visible hand)))), ((((ugly)))), (((duplicate))), ((morbid)), ((mutilated)), [out of frame], extra fingers, mutated hands, ((poorly drawn hands)), ((poorly drawn face)), (((mutation))), (((deformed))), ((ugly)), blurry, ((bad anatomy)), (((bad proportions))), ((extra limbs)), cloned face, (((disfigured))), out of frame, ugly, extra limbs, (bad anatomy), gross proportions, (malformed limbs), ((missing arms)), ((missing legs)), (((extra arms))), (((extra legs))), mutated hands, (fused fingers), (too many fingers), (((long neck))), red eyes, (multiple subjects), extra heads, 3d, (censor, low quality, worst quality, normal quality, error, bad, blurry, lowres:1.2), (signature, username, watermark, text, jpeg artifacts:1.2), (penis, male genitalia, phallus, male pov), penetration, fellatio, sexual intercourse, fat rolls, muscle tone, mismatched eyes, uneven eyes, poorly drawn eyes, dull eyes, empty eyes, hazy eyes, tired eyes, sleepy eyes, malformed eyes, crossed eyes, shattered irises, malformed irises, glassy eyes, abnormal pupils, malformed torso, malformed thighs, poorly drawn hair, poorly drawn clothing, floating head, malformed head, malformed arms, missing legs, malformed legs, melted clothing, deformed mouth, melted tongue, closed mouth, merged bodies, poorly drawn liquid, fused nipples, EasyNegativeV2
 
 768 x 1280
+cfg 4.5 euler
+tsubaki
 
 profile view of a graceful and dignified girl with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with tiny breasts wearing degrading cow print lingerie with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while deepthroating a cock with her luscious lips wrapped tightly around the tip of the cock and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
 
 a graceful and dignified woman with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with small breasts wearing degrading cow print bodysuit with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while being fucked and penetrated by a cock from below and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
 
-hassaku v1.3
-23 steps
-eulera/euler
-4.5/5/6 cfg
+bad quality, low quality, worst quality, lowres, nsfw, jpeg artifacts, scan artifacts, mosaic, cropped, error, fewer digits, bad reflection, bad composition, bad anatomy, bad hands, bad fingers, missing fingers, extra hands, extra legs, excess fingers, light particles, artist name, text, watermark, username, copyright name
 
 https://pixai.art/model/1632238604064333104
 
