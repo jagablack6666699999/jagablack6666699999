@@ -40,7 +40,7 @@ bad_prompt, long neck, out of frame, extra fingers, mutated hands, monochrome, (
 cfg 4.5 euler
 tsubaki
 
-profile view of a graceful and dignified girl with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with tiny breasts wearing degrading cow print lingerie with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while deepthroating a cock with her luscious lips wrapped tightly around the tip of the cock and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
+profile view of a graceful and dignified girl with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, pubic hair, with tiny breasts wearing degrading cow print lingerie with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while deepthroating a cock with her luscious lips wrapped tightly around the tip of the cock and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
 
 a graceful and dignified woman with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with small breasts wearing degrading cow print bodysuit with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while being fucked and penetrated by a cock from below and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
 
@@ -106,6 +106,7 @@ https://nhentai.net/g/242460/16/
 https://nhentai.net/g/279976/17/
 https://nhentai.net/g/456045/2/
 https://nhentai.net/g/563604/32/
+https://nhentai.net/g/589158/35/
 https://nhentai.net/g/587347/2/
 https://nhentai.net/g/447099/2/
 https://nhentai.net/g/384722/2/
