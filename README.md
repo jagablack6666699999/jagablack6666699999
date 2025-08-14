@@ -44,6 +44,8 @@ profile view of a graceful and dignified girl with brown hair in a ponytail, gre
 
 a graceful and dignified woman with brown hair in a ponytail, green eyes, very prominent chin, large exposed forehead, slim body, with small breasts wearing degrading cow print bodysuit with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while being fucked and penetrated by a cock from below and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
 
+profile view of a graceful and dignified girl cosplaying as wu zetian (fate) with purple twintails, large exposed forehead, slim body, with tiny breasts wearing degrading lingerie with no underwear and squatting with her legs spread apart exposing her vagina and her arms raised behind her head exposing her armpits while deepthroating a cock with her luscious lips wrapped tightly around the tip of the cock and her eyes are half closed expressing unbelievable pleasure with heart-shaped pupils
+
 bad quality, low quality, worst quality, lowres, nsfw, jpeg artifacts, scan artifacts, mosaic, cropped, error, fewer digits, bad reflection, bad composition, bad anatomy, bad hands, bad fingers, missing fingers, extra hands, extra legs, excess fingers, light particles, artist name, text, watermark, username, copyright name
 
 https://pixai.art/model/1632238604064333104
@@ -63,14 +65,18 @@ https://nhentai.net/g/534791/20/
 https://nhentai.net/g/501835/19/
 https://nhentai.net/g/421837/13/
 https://nhentai.net/g/252432/19/
+https://nhentai.net/g/491760/15/
 https://nhentai.net/g/552888/16/
 https://nhentai.net/g/316864/22/
+https://nhentai.net/g/438646/9/
 https://nhentai.net/g/371165/31/
 https://nhentai.net/g/146595/31/
 https://nhentai.net/g/389799/23/
 https://nhentai.net/g/515971/29/
 https://nhentai.net/g/471468/20/
+https://nhentai.net/g/377522/18/
 https://nhentai.net/g/536457/18/
+https://nhentai.net/g/357623/14/
 https://nhentai.net/g/532188/3/
 https://nhentai.net/g/585795/13/
 https://nhentai.net/g/584388/23/
@@ -79,6 +85,7 @@ https://nhentai.net/g/548655/28/
 https://nhentai.net/g/367857/13/
 https://nhentai.net/g/341892/18/
 https://nhentai.net/g/461094/7/
+https://nhentai.net/g/392008/16/
 https://nhentai.net/g/511548/2/
 https://nhentai.net/g/515172/13/
 https://nhentai.net/g/485534/5/
@@ -90,6 +97,7 @@ https://nhentai.net/g/294224/21/
 https://nhentai.net/g/402779/6/
 https://nhentai.net/g/261744/4/
 https://nhentai.net/g/549750/5/
+https://nhentai.net/g/452549/12/
 https://nhentai.net/g/464136/5/
 https://nhentai.net/g/509443/7/
 https://nhentai.net/g/527358/26/
@@ -110,6 +118,7 @@ https://nhentai.net/g/589158/35/
 https://nhentai.net/g/587347/2/
 https://nhentai.net/g/447099/2/
 https://nhentai.net/g/384722/2/
+https://nhentai.net/g/392445/17/
 https://nhentai.net/g/418190/9/
 https://nhentai.net/g/177674/33/
 https://nhentai.net/g/330295/15/
