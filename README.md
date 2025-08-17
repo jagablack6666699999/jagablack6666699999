@@ -56,6 +56,14 @@ https://pixai.art/model/1610118453470568699
 
 ------------------------------------------------------------------------------------------------
 
+https://yodayo.com/models/1764a63a-e67c-4bee-890b-f215629d99bf?modelversion=32d11023-d6e8-485f-b34b-dd2b35b71882
+https://yodayo.com/models/810490f9-b9e0-4fb3-90a8-9db8791eb39c?modelversion=37588ada-8c5a-4f6e-b083-d8992237f1ee
+https://yodayo.com/models/cf037b9e-2161-4752-858b-2c4cece17c04?modelversion=bc91270b-4a03-4043-a86d-43125acff53b
+https://yodayo.com/models/51b78260-b9ff-4631-9e97-f2556ef3a1eb?modelversion=c8f44f9a-ef67-440b-af75-651e88657c5a
+https://yodayo.com/models/36b0cb8e-c781-4f73-b7ed-8373c316a41c
+
+------------------------------------------------------------------------------------------------
+
 https://nhentai.net/g/560024/9/
 https://nhentai.net/g/411191/13/
 https://nhentai.net/g/262054/18/
